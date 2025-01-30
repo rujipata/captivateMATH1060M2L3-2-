@@ -1,0 +1,1 @@
+Showcase for Captivate Project for Trigonometry (MATH 1060-SPRING 2021-synchronous online) -- module 2 lesson 3 (2)
